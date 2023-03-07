@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on Web Dev Projects
 - 📫 How to reach me -- 
 
-INSTAGRAM=> @vivicoders_ --> https://www.instagram.com/vividcoders_/
 
 MAIL ID=> adityaofficial1022004@gmail.com 
 
